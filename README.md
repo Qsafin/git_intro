@@ -1,2 +1,1 @@
 Quazi Safin
-27
